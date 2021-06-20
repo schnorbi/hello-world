@@ -1,2 +1,2 @@
 # hello-world
-her you finde my "strong" ideas
+her you finde my "strong and quality" ideas
